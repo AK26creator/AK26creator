@@ -15,7 +15,7 @@
 
 - 💬 Ask me about **antigravity, react, web dev and deployment**
 
-- 📫 How to reach me **akash.o@storyseed.in**
+- 📫 How to reach me **akashsingh2kfive@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
